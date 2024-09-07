@@ -6,7 +6,8 @@
   ![Screenshot 2024-09-07 232623jpg](https://github.com/user-attachments/assets/e040b510-f70e-4dd9-9f76-93c81ecf873d)
 ![Uploading Screenshot 2024-09-07 232555.png…]()
 
-(https://github.com/user-attachments/assets/45a14911-c8c2-44f8-a616-45a7a95f3f2d)
+![Screenshot 2024-09-07 232555](https://github.com/user-attachments/assets/73e5a93e-dee6-44a7-b66c-b64185202547)
+
 
 ![Red_Bull](https://github.com/user-attachments/assets/3110fb8d-a17e-4245-af6a-dab98728279f)
 
