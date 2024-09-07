@@ -3,7 +3,8 @@
 #🤞 Tokyo-professional-project🤞
 
 **Simple but eye-catching
-  ![wind-turbine-1](https://github.com/user-attachments/assets/0e18b319-d666-47dc-8acd-469a7f3f143b)
+  ![wind-turbine-1](![Screenshot 2024-09-07 232623jpg](https://github.com/user-attachments/assets/9d9d9a81-c242-4331-bf48-09840b12ade0)
+)
   ![Wind-Turbine](https://github.com/user-attachments/assets/adcd8053-9866-4dfc-a929-b7accfd3d11c)
                                                                                                                 
 - [Demo Project](https://saeidnikseresht.github.io/Tokyo-professional-project/)
