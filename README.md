@@ -3,7 +3,8 @@
 #🤞 Tokyo-professional-project🤞
 
 **Simple but eye-catching
-  (https://github.com/user-attachments/assets/9d9d9a81-c242-4331-bf48-09840b12ade0)
+  ![Screenshot 2024-09-07 232623jpg](https://github.com/user-attachments/assets/e040b510-f70e-4dd9-9f76-93c81ecf873d)
+![Uploading Screenshot 2024-09-07 232555.png…]()
 
 (https://github.com/user-attachments/assets/45a14911-c8c2-44f8-a616-45a7a95f3f2d)
 
